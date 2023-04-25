@@ -1,5 +1,5 @@
 # 💫 About Me:
-Learning Front-End Developing for almost 2 years, Recognized for  leadership and collaborative ability when working in team settings. Also motivated to provide clients with user-friendly web applications.
+Learning Front-End Developing for almost 2 years, Recognized for  leadership and collaborative ability when working in team settings. Also motivated to provide clients with user-friendly web application.
 
 
 ## 🌐 Socials:
